@@ -1,1 +1,0 @@
-# capsx-ai
